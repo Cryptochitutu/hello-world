@@ -1,2 +1,2 @@
 # hello-world
-just for testing
+just start my crypto journey.
